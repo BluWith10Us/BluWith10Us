@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @BluWith10Us
+- 👋 Hi, I’m Asularo
 - 👀 I’m interested in NOT league of legends
 - 🌱 I’m currently learning how to live without league of legends
 - 💞️ I’m looking to collaborate on stoppin the curse known as league of legends
